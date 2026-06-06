@@ -1,1 +1,1 @@
-Click here to view my Canva Website:https://ryutakumi.my.canva.site/drkshurashinn)
+Click here to view my Portfolio:https://ryutakumi.my.canva.site/drkshurashinn)
